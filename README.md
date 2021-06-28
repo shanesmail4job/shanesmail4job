@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shane
+- 👀 I’m interested in ...renewable energy
+- 🌱 I’m currently learning ...how to coexist with dumb people
+- 💞️ I’m looking to collaborate on ...renewable energy and efficient way to run a business
+- 📫 How to reach me shanesmail4job@gmail.com 
